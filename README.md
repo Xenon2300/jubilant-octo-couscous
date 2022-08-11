@@ -11,3 +11,7 @@ Here some [evidance](https://vsbattles.fandom.com/wiki/VS_Battles_Wiki/Son_Goku)
 (Es tut mir leid mir ist nichts besseres eingeffallen💀)
 
  `Hallo mir geht es gut`
+
+
+
+~~durchgestrichen~~
