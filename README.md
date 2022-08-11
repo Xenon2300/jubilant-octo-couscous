@@ -9,3 +9,5 @@ Here some [evidance](https://vsbattles.fandom.com/wiki/VS_Battles_Wiki/Son_Goku)
 [![drip2](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRPwXd9rzlve73goED3qNruqpIGb-KykmV0ZtfyZMnkIIu9x9rhjb5NgUvyu3_nJ7Gl_2U&usqp=CAU)](https://dragonball.fandom.com/wiki/Main_Page)
 
 (Es tut mir leid mir ist nichts besseres eingeffallen💀)
+
+ `Hallo mir geht es gut`
