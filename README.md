@@ -2,4 +2,5 @@
 # Sorry cringe
 
 goku solos youre favourite verse bozo 😹😹
-He *obliterates* and **violatse** youre favourite vers **NEG DIFF**
+He *obliterates* and **violate** youre favourite vers **NEG DIFF**
+Here some [effidence] (https://vsbattles.fandom.com/wiki/Son_Goku_(DBS_Anime) 
