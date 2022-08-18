@@ -19,13 +19,18 @@ Hier sind die Codezeilen für **HELLO WORLD**
 
 namespace Ke_ahnig
 {
+
     internal class Program
     {
+    
         static void Main(string[] args)
         {
+        
+            
             Console.WriteLine("Hello World");
             Console.ReadLine();
-        }
+       
+       }
     }
 }
 
